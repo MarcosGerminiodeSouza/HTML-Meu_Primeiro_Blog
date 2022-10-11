@@ -1,6 +1,6 @@
 # Marcos Germinio
 ## Perfil
-### - Foto 100x100
+### - Foto 150x150
 ### - Nome e Sobrenome
 ## Posts
 ### Post #1
